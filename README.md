@@ -6,3 +6,4 @@
 5.  Fauzan Alfikri 20220140096
 
 
+https://www.canva.com/design/DAGEeI-w4L4/BPfFwfjERmiWV2RHytoUwA/edit
